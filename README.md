@@ -1,2 +1,1 @@
-# AMD0768.github.io
-AMD的网站
+网址无效
